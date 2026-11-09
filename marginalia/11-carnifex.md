@@ -6,7 +6,7 @@ The house smelled of floor wax and cold stone. It had smelled that way all her l
 
 They took her scroll on the first day. It was for security, said her father. She had been through a great deal. There were people who would want to speak to her, and it was better that she were not spoken to; and he put his hand on her shoulder for exactly as long as it took to say it, and took it away again.
 
-She had her old room. Someone had changed the coverlet. The window looked out onto the east garden, where a gardener she did not know was cutting back the roses in straight lines. There was a guard at the end of the corridor, who was a young man with a very good haircut, and who called her *miss* in the voice of a person who had been told what the word was for.
+She had her old room. Someone had changed the coverlet. The window looked out onto the east garden, where a gardener she did not know was cutting back the roses in straight lines. There was a guard at the end of the corridor, who was a young man with a good haircut, and who called her *miss* in the voice of a person who had been told what the word was for.
 
 Breakfast was at seven. Luncheon was at one. Dinner was at six, in the long room, with the table laid for four and a fifth place set and left. Her mother came down for it, mostly. Her brother came down for it always. He had grown. He cut his meat into pieces of identical size.
 

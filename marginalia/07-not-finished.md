@@ -70,7 +70,7 @@ Weiss did not speak.
 
 It was the whole answer. She had no other.
 
-She had expected something. Shouting; or a hand going to a weapon; or a sound like the sound of the cafeteria when the tray went down. What she got was Weiss standing at the hatch with her hands in her pockets. Her face in the moonlight was very white. She was looking at the middle distance between Blake and the sky.
+She had expected something. Shouting; or a hand going to a weapon; or a sound like the sound of the cafeteria when the tray went down. What she got was Weiss standing at the hatch with her hands in her pockets. Her face in the moonlight was white. She was looking at the middle distance between Blake and the sky.
 
 She said, "Excuse me."
 

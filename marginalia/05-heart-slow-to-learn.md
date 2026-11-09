@@ -133,7 +133,7 @@ She looked at it for some time. She could not make the sentence say what for. Sh
 
 She did not know why. She knew, perfectly well, the reasons it was wrong. She could have given a lecture. She could have given two, with footnotes. But somewhere below the place where the lecture was kept there was a part of her that had learned it differently, and earlier, and from other teachers, and it had not been told.
 
-She ran the tap. She put her hands under it, and held them there, and the water was very cold, and she watched it go over her wrists until her fingers stopped feeling like something they were trying to hold.
+She ran the tap. She put her hands under it, and held them there, and the water was cold, and she watched it go over her wrists until her fingers stopped feeling like something they were trying to hold.
 
 In the mirror the scar showed over her left eye. She looked at it as she always did, without recognising anything.
 

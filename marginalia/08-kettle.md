@@ -76,7 +76,7 @@ Ruby was staring at the top of Blake's head with the expression of a person who 
 
 At the desk by the window, Weiss's pen had stopped.
 
-She had not turned around. Blake could see the back of her neck. It was quite still, and a little pink, and after a while she said, to the window, "I didn't know. Until I found out in the worst way a person can."
+She had not turned around. Blake could see the back of her neck. It was still, and a little pink, and after a while she said, to the window, "I didn't know. Until I found out in the worst way a person can."
 
 "Yeah," said Yang. "I heard."
 
@@ -210,7 +210,7 @@ She stamped again. Nothing. She took three steps, and the third time she brought
 
 Blake didn't say anything. She couldn't, because Weiss had turned round with her hair coming down on one side and snow on her eyelashes and a look of such offended dignity that nothing she could have said would have been equal to it. And then, in front of her, all at once, Weiss laughed.
 
-It was not the laugh she used at dinner. That one was low and musical and went a short way and stopped. This one came out of her nose. It was a snort, short, surprised, and ugly, and she clapped a hand over her mouth, and her eyes above the hand went very wide.
+It was not the laugh she used at dinner. That one was low and musical and went a short way and stopped. This one came out of her nose. It was a snort, short, surprised, and ugly, and she clapped a hand over her mouth, and her eyes above the hand went wide.
 
 Blake looked at her.
 
@@ -228,13 +228,13 @@ For a week afterward she tried to make her do it again. She was not good at it. 
 
 *The weekend.*
 
-Weiss went home on Friday for a reason that no one asked about. She went in her good coat, the white one with the grey fur, with her case in her hand, and she took the afternoon airship, and the room was very quiet.
+Weiss went home on Friday for a reason that no one asked about. She went in her good coat, the white one with the grey fur, with her case in her hand, and she took the afternoon airship, and the room was quiet.
 
 She came back on Sunday at nine.
 
 She said "Good evening" to the room. She put her case at the foot of the bed. She sat down and began to unpack, and Blake, from the window, watched her fold a blouse in three, and fold it in three again, and lay it in the drawer, and take it out, and fold it once more.
 
-Nobody said anything. Ruby looked at Yang, and Yang looked at the ceiling. After a time Ruby began, very gently, to talk about her afternoon, and Weiss said "Yes" and "Oh" and "I see," in the voice of a person standing at the very edge of a platform.
+Nobody said anything. Ruby looked at Yang, and Yang looked at the ceiling. After a time Ruby began, gently, to talk about her afternoon, and Weiss said "Yes" and "Oh" and "I see," in the voice of a person standing at the very edge of a platform.
 
 Blake went out. She was back in a quarter of an hour.
 
@@ -250,7 +250,7 @@ There was a silence in which neither of them moved.
 
 "Yes," said Weiss. "I recall."
 
-She lay down. She turned onto her side and pulled up the blanket. After a time she reached up, without looking, and clicked the lamp on. The shelf went yellow. It was a very small light.
+She lay down. She turned onto her side and pulled up the blanket. After a time she reached up, without looking, and clicked the lamp on. The shelf went yellow. It was a small light.
 
 She read for some time, with the book propped on the pillow. Then the page stopped turning. Then the book slid, slowly, sideways, and came to rest against her face.
 

@@ -94,7 +94,7 @@ Weiss had heard it too. Blake could tell by the heart. It missed a beat, and wen
 
 She said it level. It came out as it always did.
 
-The silence was very long. In it she could hear the wind, the stove, the dog's breath, the small sound a person makes when she has swallowed something she wanted to say.
+The silence was long. In it she could hear the wind, the stove, the dog's breath, the small sound a person makes when she has swallowed something she wanted to say.
 
 "I'll take the bunkhouse," said Blake.
 
@@ -162,7 +162,7 @@ She had heard nothing. That was impossible. She had slept through a door and a s
 
 And then, outside, she heard it.
 
-It was a very thin sound. It came from the yard, a long way off, going away: a little thread of tune, hummed low, hardly more than breath. Three notes. A rest. A phrase that climbed. It went across the snow toward the other building and grew fainter and was gone, and she lay with her ears up, and listened to it all the way.
+It was a thin sound. It came from the yard, a long way off, going away: a little thread of tune, hummed low, hardly more than breath. Three notes. A rest. A phrase that climbed. It went across the snow toward the other building and grew fainter and was gone, and she lay with her ears up, and listened to it all the way.
 
 She did not move for a long time.
 

@@ -28,7 +28,7 @@ Her mother stood in the kitchen doorway with the kettle. It was late afternoon. 
 
 Kali hummed it back.
 
-She did it exactly. She had always had a very good ear, better than Blake's. She took the three notes and the rest and the phrase that climbed, and held the top of it a little longer than it deserved, and let it fall; and Blake's hands stopped on the net.
+She did it exactly. She had always had a good ear, better than Blake's. She took the three notes and the rest and the phrase that climbed, and held the top of it a little longer than it deserved, and let it fall; and Blake's hands stopped on the net.
 
 "It's a good tune," said her mother.
 
@@ -52,7 +52,7 @@ The net lay on her knees. The small gold squares moved. Down at the quay somebod
 
 "Weiss," said Blake.
 
-It was very quiet. It was quieter than she had meant it to be, and she heard it go into the kitchen, and not come out.
+It was quiet. It was quieter than she had meant it to be, and she heard it go into the kitchen, and not come out.
 
 Her mother did not turn round. She stood with her back to the door and her hand on the kettle handle, and she said, after a decent interval, in a voice of immense calm:
 
@@ -102,7 +102,7 @@ Her mother had come out of the house. She stood on the step, with her hands fold
 
 "It is her door," said Kali.
 
-Ghira said nothing. He looked at his wife for some time. Then at Blake, the length of the yard, with his heavy face quite still; the face of a man who has seen a long way down the road and has decided that he is not going to like it.
+Ghira said nothing. He looked at his wife for some time. Then at Blake, the length of the yard, with his heavy face still; the face of a man who has seen a long way down the road and has decided that he is not going to like it.
 
 "She is eighteen," he said.
 
@@ -122,7 +122,7 @@ The south strand was a mile of grey sand under a long grey sky. At the half-ebb 
 
 She did not remember much of the next part either. It did not come back in order. It did not come back in pieces. It came back as a heaviness down one side of her, like a coat soaked through, and it lay there and did not move.
 
-What she remembered was the end of it. She remembered the sand, and the water over her knees. She was sitting down. She did not know when she had sat. The tide had turned. It was coming in around her, quietly, over her boots and her thighs and the heel of her hands, and it was warm. Her hands lay open on the surface. They were quite steady. That was the thing she would not forget. They were steady, and they were not hers.
+What she remembered was the end of it. She remembered the sand, and the water over her knees. She was sitting down. She did not know when she had sat. The tide had turned. It was coming in around her, quietly, over her boots and her thighs and the heel of her hands, and it was warm. Her hands lay open on the surface. They were steady. That was the thing she would not forget. They were steady, and they were not hers.
 
 The blade was a little way off. She watched the water take the colour out of it.
 
@@ -172,7 +172,7 @@ It sounded stupid. It sounded like a child's thing.
 
 "A person."
 
-There was a very long pause. Kali picked up the bread and tore it, once, down the middle.
+There was a long pause. Kali picked up the bread and tore it, once, down the middle.
 
 "The cold one," she said.
 

@@ -44,11 +44,11 @@ She was holding a person against the wall.
 
 The person was Weiss.
 
-She was very white. Her head was back against the planks and her chin was up, and her left hand had come up of its own accord and was spread, palm out, in the air beside her face, as one raises a hand to a horse. Her right wrist was in Blake's fist. She had not made a sound.
+She was white. Her head was back against the planks and her chin was up, and her left hand had come up of its own accord and was spread, palm out, in the air beside her face, as one raises a hand to a horse. Her right wrist was in Blake's fist. She had not made a sound.
 
 Her eyes were wide.
 
-They were not on the blade. They were not on Blake's other hand, or on the arm at her throat. They were on Blake's face. They were quite steady. She had never in her life seen anyone look so entirely unafraid, and so afraid, and it took her a moment to see that it was not for herself.
+They were not on the blade. They were not on Blake's other hand, or on the arm at her throat. They were on Blake's face. They were steady. She had never in her life seen anyone look so entirely unafraid, and so afraid, and it took her a moment to see that it was not for herself.
 
 "Blake," said Weiss.
 
@@ -70,7 +70,7 @@ She did not remember crossing the room. She did not remember the door. There was
 
 * * *
 
-Her hands were very steady.
+Her hands were steady.
 
 She looked at them. They lay on her knees in the blue light, open, the fingers slightly curved, and they did not shake at all. It was the rest of her. It was the long muscles of her thighs and the cords of her back. She looked at her hands and thought, quite clearly: *They are not mine.*
 
@@ -94,7 +94,7 @@ There was a rustle, and a small creak. A pause. Nothing else.
 
 Blake looked at the snow. It was a hard blue. A little wind came down the yard and shifted the surface and went on.
 
-She did not look round. She could hear her without looking: a figure on the woodpile, twenty feet away, upright, with her hands in her lap. She could hear the heart, quick and clipped. She could hear a breath. She could hear, very faintly, a click, which was a pair of teeth shutting.
+She did not look round. She could hear her without looking: a figure on the woodpile, twenty feet away, upright, with her hands in her lap. She could hear the heart, quick and clipped. She could hear a breath. She could hear, faintly, a click, which was a pair of teeth shutting.
 
 Ten minutes. Twenty.
 
@@ -218,7 +218,7 @@ She had known it was coming. It had been coming since the door.
 
 It was such a plain answer that she turned her head.
 
-She was sitting a yard off with her knees up, in the grey coat, with her chin on her fists and the dusk behind her. She was looking at Blake. She had a face that she was holding quite still, and the effort showed, as the grain shows through a coat of paint.
+She was sitting a yard off with her knees up, in the grey coat, with her chin on her fists and the dusk behind her. She was looking at Blake. She had a face that she was holding still, and the effort showed, as the grain shows through a coat of paint.
 
 Her right wrist lay on her knee. The cuff of the glove had slipped. There was a ring round the bone, now, dark as a plum.
 
@@ -246,7 +246,7 @@ She began to wind the tape. Twice round, and across, and round.
 
 Blake's hands stopped.
 
-She looked up. Weiss's face was perfectly grave. There was a smudge of ash on the cheekbone, under the scar. Her eyes were red-rimmed and extremely bright, and her mouth was held very still at the corners, with a care that was nearly heroic.
+She looked up. Weiss's face was perfectly grave. There was a smudge of ash on the cheekbone, under the scar. Her eyes were red-rimmed and extremely bright, and her mouth was held still at the corners, with a care that was nearly heroic.
 
 Blake let out her breath.
 
@@ -264,7 +264,7 @@ She smoothed the end flat with her thumb.
 
 There was a pause. It went on, and in it she watched the corner of Weiss's mouth give way, a little, then more, until it had lost its argument entirely. A sound came out. It was not the snort. It was a smaller, shakier thing, a long unsteady breath through the nose, with a break in the middle of it. She put her head down on her arm, on the desk, and her shoulders shook.
 
-Blake sat quite still.
+Blake sat still.
 
 She did not touch her. She kept the taped wrist in her two hands, lightly, as one holds a bird, and listened to it go on. It went on a good while. She did not say anything at all.
 

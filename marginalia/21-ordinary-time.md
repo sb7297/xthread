@@ -70,7 +70,7 @@ She looked at the two halves. They lay as the others had lain.
 
 "It's not. You've just stopped arguing."
 
-They did it for an hour. They did not talk much. The sun came out low and hard over the shoulder of the hill and made the whole shelf of the camp glitter, every roof and pole and rail, and the split wood piled up between them in two white heaps, one on either side, going up. At some point Weiss became aware that she was humming, and Blake was not, but was moving her head very slightly in the time of it, and she let it go on.
+They did it for an hour. They did not talk much. The sun came out low and hard over the shoulder of the hill and made the whole shelf of the camp glitter, every roof and pole and rail, and the split wood piled up between them in two white heaps, one on either side, going up. At some point Weiss became aware that she was humming, and Blake was not, but was moving her head slightly in the time of it, and she let it go on.
 
 * * *
 
@@ -192,7 +192,7 @@ Weiss turned. "I'm sorry?"
 
 She did it. She stood with the spoon in her hand, in the middle of the floor, in front of two people and a dog, and hummed eight bars. Three notes. A rest. A phrase that climbed and was held on the top a little too long, and let fall.
 
-The old woman's face did something. It was a very slow thing. It did not crumple. It simply, from the eyes outward, emptied, as a house empties when the family has gone out.
+The old woman's face did something. It was a slow thing. It did not crumple. It simply, from the eyes outward, emptied, as a house empties when the family has gone out.
 
 "That's a pit song," she said.
 
@@ -212,7 +212,7 @@ On the stove, behind Weiss, the kettle began, softly, to sing.
 
 "Who taught you that?" said Tove.
 
-Weiss did not answer. She stood with the spoon in her hand. She had gone the colour of the snow, from the throat to the hairline, and the spoon had begun to tremble, very slightly, and she looked at it, and set it down on the stove.
+Weiss did not answer. She stood with the spoon in her hand. She had gone the colour of the snow, from the throat to the hairline, and the spoon had begun to tremble, slightly, and she looked at it, and set it down on the stove.
 
 Her right hand was at her side. The thumb was moving across the first two fingers, slowly, back and forth.
 

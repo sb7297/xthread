@@ -6,11 +6,11 @@ She was at the stove, with the damper in her hand, trying to learn what it was f
 
 A figure was coming up the track on skis.
 
-It was small and broad. It moved with a short, steady, shuffling stride, bent forward over the poles, in a heap of grey wool and sheepskin that made it hard to tell where the coat stopped. Behind it a little sled came sliding on a rope. Beside the sled, trotting, with one ear up and one ear down, went a long lean grey dog with a very serious face.
+It was small and broad. It moved with a short, steady, shuffling stride, bent forward over the poles, in a heap of grey wool and sheepskin that made it hard to tell where the coat stopped. Behind it a little sled came sliding on a rope. Beside the sled, trotting, with one ear up and one ear down, went a long lean grey dog with a serious face.
 
 Weiss put on the coat. She took Myrtenaster from the peg, and then put it back. She opened the door.
 
-It was a woman. She had stopped at the edge of the yard to knock the snow from her skis, one and then the other, with great deliberation, and she looked up only when she had finished. Her face was brown and creased and wide-cheeked. Her eyes were very pale. From under the sheepskin cap, on either side, rose two long white ears, white as the snow, tipped with black, one of them nicked at the edge by a small old notch.
+It was a woman. She had stopped at the edge of the yard to knock the snow from her skis, one and then the other, with great deliberation, and she looked up only when she had finished. Her face was brown and creased and wide-cheeked. Her eyes were pale. From under the sheepskin cap, on either side, rose two long white ears, white as the snow, tipped with black, one of them nicked at the edge by a small old notch.
 
 "You'll be the Schnee."
 
@@ -134,13 +134,13 @@ And on an end-board, at the height of the eyes, in a hand she knew from the log,
 
 "Anselm," said Tove.
 
-She had come up behind her. She stood at Weiss's elbow with her hands in her sleeves, looking at the rail. Her ears, long and white, stood quite still.
+She had come up behind her. She stood at Weiss's elbow with her hands in her sleeves, looking at the rail. Her ears, long and white, stood still.
 
 "Snored. Like a boat on a rope. You could hear it from the cookhouse. He'd a wife in Mantle and sent her every lien. That one is Dara." She nodded at the next bunk. "Cheated at cards. Was no good at it. Lost four shifts' wages in a winter to a man she'd taught." Her eyes moved. "Pettigrew couldn't sing. He did, though. Every night. E.V. there, the surveyor, he wrote the temperature to the decimal. We said he'd write the day he died to the second. He'd have liked that."
 
 She went on.
 
-She did not do it for effect. She said each one in the same dry flat voice, in a tone almost of complaint, as one might go through a list of tools, and each had something. *Left-handed. Owed me a pound. Wept at weddings. Could whistle with two fingers and a thumb. Terrible with children.* They came up out of the dark of the bunkhouse one at a time, the way objects come out of a drawer. They had boots. They had mothers. It was a very long room.
+She did not do it for effect. She said each one in the same dry flat voice, in a tone almost of complaint, as one might go through a list of tools, and each had something. *Left-handed. Owed me a pound. Wept at weddings. Could whistle with two fingers and a thumb. Terrible with children.* They came up out of the dark of the bunkhouse one at a time, the way objects come out of a drawer. They had boots. They had mothers. It was a long room.
 
 Weiss stood and listened with her hand against a post.
 
@@ -174,7 +174,7 @@ She struck out the second *l.* She did it carefully, with a single line, as one 
 
 She stood with the pen over it.
 
-It was a very small thing. It was a letter of the alphabet. She was aware of her own hand, steady on the page, and of a sensation behind the breastbone that she could not name and did not try to, as of something heavy being turned slightly over.
+It was a small thing. It was a letter of the alphabet. She was aware of her own hand, steady on the page, and of a sensation behind the breastbone that she could not name and did not try to, as of something heavy being turned slightly over.
 
 "There," said Tove Dahl. She was looking not at the book but at her face. She did not look away. "That's better."
 
@@ -228,7 +228,7 @@ The old woman paused with her hand on the latch. She did not turn. Her ears, aga
 
 She stayed on in the bunkhouse until it was dark.
 
-She sat on the end of the nearest bunk with the notebook on her knee, and a stub of pencil, and wrote by the window. She went down the list. She did it slowly, with her tongue between her teeth. Beside each of the thirty-one names she put, in a very small hand, in the margin, what she had been told.
+She sat on the end of the nearest bunk with the notebook on her knee, and a stub of pencil, and wrote by the window. She went down the list. She did it slowly, with her tongue between her teeth. Beside each of the thirty-one names she put, in a small hand, in the margin, what she had been told.
 
 *Snored.*
 

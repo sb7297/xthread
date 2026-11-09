@@ -12,7 +12,7 @@ Across the amphitheatre, in the third row, Blake closed her book on her finger a
 
 Weiss had thought about this. She would not have said so, but she had. She had watched Blake in the Emerald Forest and in the corridors and at the long table in the dining hall, where she ate with her back to the wall and her eyes on the doors. She had watched a good deal. She had arrived at no conclusion except that Blake was quick, and that she did not seem to mind being watched, which was interesting, since she so clearly minded everything else.
 
-The glove was in her coat pocket. It had been there two days. She had picked it up from the library table with the intention of returning it, and then there had been a day, and then another. It was a very small glove. It was absurd to be thinking of it now.
+The glove was in her coat pocket. It had been there two days. She had picked it up from the library table with the intention of returning it, and then there had been a day, and then another. It was a small glove. It was absurd to be thinking of it now.
 
 She went down the steps to the floor.
 
@@ -28,7 +28,7 @@ Again. Another thrust, another shadow. It fell into pieces and was not there.
 
 Blake did not talk when she fought. She did not do anything for show. She came in low and sidelong and withdrew before the answer could arrive; she used the ribbon to take her own weight, swinging, and once she took a length of the front railing with it, by accident, and said "Sorry" to no one. Weiss drove her back across the floor with a line of ice, and Blake ran along it, and the ice shattered where she had been.
 
-She was very good. This was an annoying thing to discover in someone who had said six words at dinner.
+She was good. This was an annoying thing to discover in someone who had said six words at dinner.
 
 Weiss cut through a third shadow. It came apart in the same silence.
 
@@ -54,7 +54,7 @@ Neither of them moved.
 
 "Yes."
 
-Blake lowered the blade. Her eyes had gone to Weiss's, and stayed. They were gold, a very pale gold in the lights. Something moved at the top of her head. The bow shifted, once, as if there were a draft.
+Blake lowered the blade. Her eyes had gone to Weiss's, and stayed. They were gold, a pale gold in the lights. Something moved at the top of her head. The bow shifted, once, as if there were a draft.
 
 Weiss glanced at the air. The air in the arena was perfectly still.
 

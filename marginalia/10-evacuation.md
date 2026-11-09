@@ -24,9 +24,9 @@ Yang had always stepped in front. She had a habit of it; it was the first thing 
 
 Yang sat down.
 
-She sat on the flagstones, quite slowly, with a look of great surprise. Her left sleeve was a different colour than it had been.
+She sat on the flagstones, slowly, with a look of great surprise. Her left sleeve was a different colour than it had been.
 
-The arithmetic was very quick. She had learned it in cellars. He had come for her. He would have her, and then he would have anyone who stood nearest, one after another, until there was no one nearer; and she knew how that sum ended, because she had seen the working.
+The arithmetic was quick. She had learned it in cellars. He had come for her. He would have her, and then he would have anyone who stood nearest, one after another, until there was no one nearer; and she knew how that sum ended, because she had seen the working.
 
 But he would follow. That was the other half. He always followed. If she went, he would come after her, and he would leave the rest.
 
@@ -44,7 +44,7 @@ Then Yang said it once more, in a different voice.
 
 The field was west of the school, beyond the lower gate, and by morning there were four thousand people in it.
 
-There were blankets. There were the kind of tents that go up in an hour and come down in less. There was a very long line for water. The smoke lay over the whole of it, grey, flat, and low, and under the smoke a sound that went on in the same register all day: a murmur, with no words in it, like the noise in a seashell.
+There were blankets. There were the kind of tents that go up in an hour and come down in less. There was a long line for water. The smoke lay over the whole of it, grey, flat, and low, and under the smoke a sound that went on in the same register all day: a murmur, with no words in it, like the noise in a seashell.
 
 Weiss sat on an upturned crate with a blanket on her shoulders. She did not know who had put it there.
 
@@ -82,7 +82,7 @@ The east wing had gone down at the middle.
 
 The roof on that side was a shape; the other side had a wall. She went up the stair that was left, over a floor that gave under her boots with a noise like an animal settling. There was a door, and a frame, and no room. There were the beams of the next floor, laid across what had been theirs. She had to go in under them on her hands.
 
-It was very quiet in there. The grey light came in from above, through a hole.
+It was quiet in there. The grey light came in from above, through a hole.
 
 The wall beside the door was standing.
 
@@ -118,7 +118,7 @@ Her sister stopped a yard away. She did not hold out her arms. She looked her ov
 
 "Your team has been dispersed. General Ironwood has the evacuation. Weiss." She said it again, lower. "It's an order from the Council, and it is also not."
 
-Weiss looked past her at the field. At the crates, the stretcher, the dark head bent over it. Ruby was looking at her. Her face was small and white and very serious. She nodded once, as someone nods at a train.
+Weiss looked past her at the field. At the crates, the stretcher, the dark head bent over it. Ruby was looking at her. Her face was small and white and serious. She nodded once, as someone nods at a train.
 
 "I'll write," said Weiss.
 

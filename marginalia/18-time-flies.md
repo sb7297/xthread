@@ -142,4 +142,4 @@ A dog barking.
 
 Then, low down and to the right, a little yellow square.
 
-It hangs in the white. It does not flicker. It is very small and quite steady, and it is the only thing in the world.
+It hangs in the white. It does not flicker. It is small and steady, and it is the only thing in the world.

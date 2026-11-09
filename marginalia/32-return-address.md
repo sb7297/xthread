@@ -2,7 +2,7 @@
 
 She wrote four letters, and the fourth took eleven days.
 
-The first was to her mother. It was short, and she wrote it in a morning. *I am well. I'm sorry about the dinner. I am thinking of you. I hope you are eating.* She read it twice. She added, after a moment, *Please do not tell Father where this came from,* and then struck that out, and wrote, *Tell him if you like,* and sat for some time looking at it. It was the first honest thing she had ever said to Willow, and it was quite plain that it would be understood.
+The first was to her mother. It was short, and she wrote it in a morning. *I am well. I'm sorry about the dinner. I am thinking of you. I hope you are eating.* She read it twice. She added, after a moment, *Please do not tell Father where this came from,* and then struck that out, and wrote, *Tell him if you like,* and sat for some time looking at it. It was the first honest thing she had ever said to Willow, and it was plain that it would be understood.
 
 The second was to Ruby, who had a right to more. It was four pages. She wrote it at the desk in the afternoons, with the window open and the thaw dripping in the lean-to, in her good hand, and it was a poor letter, long and anxious and full of crossings-out, and at the end of it she wrote, *I know. I said I would write. I'm writing,* and signed it with her whole name.
 
@@ -162,7 +162,7 @@ Weiss read the whole sheet twice, as she did. She read the names, one at a time,
 
 It was not a long signature. It was *W. Schnee,* upright, clear, and a little too large. She did it in ink, under the nine, with the pen she had had since she was twelve.
 
-She sealed the letters with her own seal, a small cold stamp of a snowflake in a ring, which she had had in the bottom of the hatbox, and which she pressed into the wax and held, a count of five, until it had taken. She looked at it for a time. It was a very exact mark. Then she took the point of the penknife and drew a single line through the centre, from rim to rim, so that the ring was split.
+She sealed the letters with her own seal, a small cold stamp of a snowflake in a ring, which she had had in the bottom of the hatbox, and which she pressed into the wax and held, a count of five, until it had taken. She looked at it for a time. It was an exact mark. Then she took the point of the penknife and drew a single line through the centre, from rim to rim, so that the ring was split.
 
 "That's defacing a seal," said Blake, from the door.
 
@@ -188,7 +188,7 @@ She watched the track. It had gone from white to grey to a sort of thin black ri
 
 On the eleventh day the dog got up and went out.
 
-He went without being asked. He went to the end of the yard, and stood with his one ear up and the other down, and looked down the valley with the air of a creature that has heard its own name said, in a far room, by someone it likes; and a quarter of an hour later, round the shoulder of the spur, very small, there came a sled.
+He went without being asked. He went to the end of the yard, and stood with his one ear up and the other down, and looked down the valley with the air of a creature that has heard its own name said, in a far room, by someone it likes; and a quarter of an hour later, round the shoulder of the spur, small, there came a sled.
 
 * * *
 
@@ -202,7 +202,7 @@ It was Brand. He had come as far as the foot, and Tove had gone down to meet him
 
 "I know."
 
-She went through the sack with her hands not quite steady. There was a good deal. There was a thick envelope in four colours of ink, with a small rose in the corner, which she put on the desk, unopened, and laid her palm on, as one settles a child. There was a postcard with a drawing on it of an orange, ferociously shaded, and on the back, in a large square hand, *A MONTH IS UP. —Y.* There was a note, two lines, in a hand she did not know, from someone who signed himself *Klein,* which said that Mrs. Abney sent her regards and that the cook wished it known that the bread had been very stale.
+She went through the sack with her hands not steady. There was a good deal. There was a thick envelope in four colours of ink, with a small rose in the corner, which she put on the desk, unopened, and laid her palm on, as one settles a child. There was a postcard with a drawing on it of an orange, ferociously shaded, and on the back, in a large square hand, *A MONTH IS UP. —Y.* There was a note, two lines, in a hand she did not know, from someone who signed himself *Klein,* which said that Mrs. Abney sent her regards and that the cook wished it known that the bread had been very stale.
 
 And at the bottom, in a cream envelope, with the crest of a House stamped in the corner and her own name in a hand like a ruled line: a letter.
 
@@ -246,9 +246,9 @@ She read it once.
 
 She read it again. She read it with great care, from the first line to the last, in the thin clear light of the window. At the second reading she came to *glass,* and stopped there.
 
-*A light. A very white light, very close.*
+*A light. A white light, close.*
 
-She stood quite still. A door, in summer, at noon. The sun through it. A great flat sheet of white, a thing she had run at, as a child runs, with arms out, thinking that it was air.
+She stood still. A door, in summer, at noon. The sun through it. A great flat sheet of white, a thing she had run at, as a child runs, with arms out, thinking that it was air.
 
 *She held your head in her apron.*
 
@@ -264,7 +264,7 @@ She turned her head. Blake was beside her, a foot off. She had not moved to touc
 
 She said it aloud.
 
-It was quite easy. It came out of her mouth like any word. It was a short soft name, with a round vowel in the middle, and it went into the air of the hut, among the stove and the cups and the sound of the water, and did not break.
+It was easy. It came out of her mouth like any word. It was a short soft name, with a round vowel in the middle, and it went into the air of the hut, among the stove and the cups and the sound of the water, and did not break.
 
 "Maren Holt."
 

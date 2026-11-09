@@ -83,7 +83,7 @@ She had imagined this. She had lain in the dark for nights and imagined it in se
 
 "No. You were not asked to."
 
-She sat quite still. Her hands were in her lap. She could feel them there, folded, one over the other, in the way she had been taught, and she had the odd, clear thought that she would not be able to take them apart.
+She sat still. Her hands were in her lap. She could feel them there, folded, one over the other, in the way she had been taught, and she had the odd, clear thought that she would not be able to take them apart.
 
 "Why me?"
 
@@ -163,9 +163,9 @@ Her father regarded her. It went on a long time. She watched him decide somethin
 
 "Thank you, Father."
 
-She rose. She pushed in her chair, squarely. She did not look at her mother, or at Whitley, or at Klein, who was standing at the sideboard with his hands behind him and his long grey face turned, very slightly, away.
+She rose. She pushed in her chair, squarely. She did not look at her mother, or at Whitley, or at Klein, who was standing at the sideboard with his hands behind him and his long grey face turned, slightly, away.
 
-She went out through the door at the end of the room. It was a long door, and it closed on a spring, and in the hall the light from the chandelier fell on the black and white tiles in great even squares. She walked across them. She heard, very faintly, her own heels.
+She went out through the door at the end of the room. It was a long door, and it closed on a spring, and in the hall the light from the chandelier fell on the black and white tiles in great even squares. She walked across them. She heard, faintly, her own heels.
 
 It was not until she was nearly at the stair that she found she was humming.
 

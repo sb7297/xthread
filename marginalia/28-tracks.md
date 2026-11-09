@@ -8,7 +8,7 @@ She had made the shadow at four. She had made it with care. She had stood in the
 
 She had written the note in the book.
 
-She went over that part again and again, on the track. She could not stop it. The pencil stub in the light of the stove. The page. She had been quite calm. She had thought of the words and found the words and set them down in a good dry hand, and had stood back and thought, with a feeling that she recognised in the dark of her own chest as *satisfaction: it is correct. Notice given.*
+She went over that part again and again, on the track. She could not stop it. The pencil stub in the light of the stove. The page. She had been calm. She had thought of the words and found the words and set them down in a good dry hand, and had stood back and thought, with a feeling that she recognised in the dark of her own chest as *satisfaction: it is correct. Notice given.*
 
 *Rule 12: notice given. —B.*
 
@@ -48,7 +48,7 @@ And across the hiss, from a long way off, small and cracked and tinny, came a vo
 
 Blake's ears came up.
 
-She had known that she would hear it. She had not known that it would go through her like that. It was a thin quick voice, with all the starch gone out of it, and what was left was not a thing she had heard in it before: it was the voice of a person who has been standing a very long time in a cold place and has just been told that something might be all right.
+She had known that she would hear it. She had not known that it would go through her like that. It was a thin quick voice, with all the starch gone out of it, and what was left was not a thing she had heard in it before: it was the voice of a person who has been standing a long time in a cold place and has just been told that something might be all right.
 
 *"Is she—"*
 
@@ -192,7 +192,7 @@ It was too much. She put her fist against her mouth and made a sound into it whi
 
 She read it three times.
 
-The seventh was short. It had been written last, she thought, by the look of the ink, and in a different mood, very steady. It was folded in four, and had lain on top of all the rest.
+The seventh was short. It had been written last, she thought, by the look of the ink, and in a different mood, steady. It was folded in four, and had lain on top of all the rest.
 
 *I do not know whether you are coming back. I would like you to. This is not a request. It is a fact that I thought you ought to have. —W.*
 
@@ -212,7 +212,7 @@ She was up. She was out of the bunkhouse by the back and along the wall before s
 
 It was Weiss. She knew the stride.
 
-It came to the bunkhouse door and stopped. It stood quite still, with the lamp held low, facing the wood; and then, very softly, into the planks, it hummed.
+It came to the bunkhouse door and stopped. It stood still, with the lamp held low, facing the wood; and then, softly, into the planks, it hummed.
 
 Three notes. A rest. The phrase that climbed.
 
@@ -230,7 +230,7 @@ She had not moved. She had not made a sound.
 
 The figure did not come toward her.
 
-She had expected that it would. She had braced for it, for a rush, a hand, a voice calling her name across the snow in a tone of command. It did not come. The figure stood quite still on the step, thirty yards off, in the starlight, with its hands at its sides. And then she heard it, thin, clear, a little unsteady on the climb, going out over the snow toward her with great care: the tune, the whole of it, the eight bars.
+She had expected that it would. She had braced for it, for a rush, a hand, a voice calling her name across the snow in a tone of command. It did not come. The figure stood still on the step, thirty yards off, in the starlight, with its hands at its sides. And then she heard it, thin, clear, a little unsteady on the climb, going out over the snow toward her with great care: the tune, the whole of it, the eight bars.
 
 It was not for the door. It was for her.
 
@@ -240,7 +240,7 @@ She stood with her hand on the log.
 
 She counted five. She counted another five. She did it with the exactness of someone doing a sum. She was not asking twice because she had not heard. She was giving it time to be a real question.
 
-There was a very large silence in the world.
+There was a large silence in the world.
 
 "Yes," said Blake.
 
@@ -344,7 +344,7 @@ Blake got up. She did it slowly, with the dog against her leg. She brushed the s
 
 Weiss looked at her.
 
-It was a long look. It had in it something she had not seen before, not in a library or on a roof or a dance floor, a sort of terror and exactness combined, such as one sees on the face of a person standing at the end of a diving board.
+It was a long look. She had never seen that face on her before, not in a library or on a roof or a dance floor. It was the face of someone at the end of a diving board.
 
 "You were right," said Weiss.
 

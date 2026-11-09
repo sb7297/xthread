@@ -10,7 +10,7 @@ Blake saw it a half second after the others, because she was cutting her fish. A
 
 "Do they say who?" said Ruby.
 
-Weiss didn't turn around. She was sitting very straight with her back to the screen, and her tea in front of her, and she had not stopped eating; she cut a piece of chicken and put it in her mouth and chewed it, and it was clear from the sound of her jaw that she had heard every word.
+Weiss didn't turn around. She was sitting straight with her back to the screen, and her tea in front of her, and she had not stopped eating; she cut a piece of chicken and put it in her mouth and chewed it, and it was clear from the sound of her jaw that she had heard every word.
 
 "It's the White Fang."
 
@@ -26,7 +26,7 @@ Weiss didn't turn around. She was sitting very straight with her back to the scr
 
 "It isn't."
 
-Blake finished cutting the fish. She laid the knife across the edge of the plate. It was very quiet, the knife, on the china.
+Blake finished cutting the fish. She laid the knife across the edge of the plate. It was quiet, the knife, on the china.
 
 "I'd like to say something before somebody says it for me," said Weiss. She put her fork down. "I am not saying anything against Faunus. My family employs more than four thousand of them. I know a great many. Some of them looked after—" She stopped. She went around it, in a small neat arc, the way you go around a puddle. "I know them. They are perfectly decent people. What I'm saying is that an organisation that sets a charge on a train with guards inside it is not a political movement. It is a gang with a slogan."
 
@@ -76,7 +76,7 @@ The woman said nothing else. She wrapped the fillet in a square of waxed paper, 
 
 She ate it on the east stair, in the dark, where the steps ran out against the wall and there was a ledge no wider than a book. It was cold. She ate with her fingers. It was good fish.
 
-She tried to think about the train, and thought instead about the stencil on the car. It was a very clean stencil. Whoever had made it had cut it carefully, with a steady hand, and it had been used a great many times without the edges getting soft. Someone had been paid to do that. Someone had a job making that mark.
+She tried to think about the train, and thought instead about the stencil on the car. It was a clean stencil. Whoever had made it had cut it carefully, with a steady hand, and it had been used a great many times without the edges getting soft. Someone had been paid to do that. Someone had a job making that mark.
 
 *Four thousand,* she thought. *I know a great many.*
 

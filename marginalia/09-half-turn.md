@@ -6,9 +6,9 @@ It had come in a long white box in a nest of tissue, with a card: *For the Vytal
 
 She was fairly sure it was the best decision she had made all year.
 
-The ballroom was very full and very warm. The delegations from the four kingdoms had come in their best, and the best of Atlas was grey and silver and slightly stiff; the best of Vacuo was loose and bright and had a good deal of gold; and a man from Mistral had been explaining to her for eleven minutes about his lizard. She had said "Indeed" and "How interesting" and "Oh, no" in rotation. She had been asked to dance twice. She had declined, politely, with a smile that was a piece of engineering.
+The ballroom was very full and warm. The delegations from the four kingdoms had come in their best, and the best of Atlas was grey and silver and slightly stiff; the best of Vacuo was loose and bright and had a good deal of gold; and a man from Mistral had been explaining to her for eleven minutes about his lizard. She had said "Indeed" and "How interesting" and "Oh, no" in rotation. She had been asked to dance twice. She had declined, politely, with a smile that was a piece of engineering.
 
-At the far end Ruby was on the floor, doing something that was not a dance and not quite a fight. Jaune and Pyrrha were turning slowly in the centre, with the gravity of two people being very careful with something fragile. Yang had a boy by the hand and was leading him around like a dog on a lead, delighted. The orchestra played, in three, and in three, and in three.
+At the far end Ruby was on the floor, doing something that was not a dance and not quite a fight. Jaune and Pyrrha were turning slowly in the centre, with the gravity of two people being careful with something fragile. Yang had a boy by the hand and was leading him around like a dog on a lead, delighted. The orchestra played, in three, and in three, and in three.
 
 Blake was not in the room.
 
@@ -88,7 +88,7 @@ They moved. It was badly done. Blake went forward when she should have gone back
 
 They went round. The wind took the end of Weiss's hair and put it across her face, and she did not move to put it back. She counted. She counted aloud for a time, and then more quietly, and somewhere in the third pass she stopped, and neither of them said anything about it.
 
-It came together all at once, as it does. A wrong foot became a right foot. The box turned into a turn. And with a small shock, like a stair that is not there, Weiss found that she was no longer leading. She was being led, very slightly, by a quiet hand on her back, and she was following, and it was easy.
+It came together all at once, as it does. A wrong foot became a right foot. The box turned into a turn. And with a small shock, like a stair that is not there, Weiss found that she was no longer leading. She was being led, slightly, by a quiet hand on her back, and she was following, and it was easy.
 
 Blake's ears were forward. Both of them. They were pointed at her face, as at a sound, and the tips were just visible against the dark. They did not move.
 
@@ -120,11 +120,11 @@ She took a glass of something from a tray. Her hand was not steady. She noticed 
 
 From the table by the window you could see the terrace through the doors.
 
-She had taken a chair there without having decided to. She sat very straight with her hands in her lap. The lizard man had been replaced by a woman from Vacuo who wished to discuss the price of Dust, and Weiss had said "Yes," and "I couldn't say," and "I'm afraid that's a matter for my father."
+She had taken a chair there without having decided to. She sat straight with her hands in her lap. The lizard man had been replaced by a woman from Vacuo who wished to discuss the price of Dust, and Weiss had said "Yes," and "I couldn't say," and "I'm afraid that's a matter for my father."
 
 Out on the terrace, in the square of light, there was one person.
 
-She had put her hands down. She was standing with her feet together. Then, in the middle of nothing, with her ears up and her head very slightly bent, she took a step forward and to the side, and one together, and one back.
+She had put her hands down. She was standing with her feet together. Then, in the middle of nothing, with her ears up and her head slightly bent, she took a step forward and to the side, and one together, and one back.
 
 She was counting. Weiss could not hear it. She could see it, in the mouth. *One, two, three.*
 

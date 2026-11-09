@@ -98,7 +98,7 @@ The lamp made a small yellow room at the far end of the dark. Above her, Ruby br
 
 Across the room Blake read, and then, at some point, did not. Weiss could tell by the pages. They had been turning once a minute and a half, which was reading. Then they turned every forty seconds, then every thirty, evenly, the way a person turns pages when she wants something to do with her hands while she listens to a room.
 
-Weiss lay very still. She knew that pace. It was how she herself had sat through dinners.
+Weiss lay still. She knew that pace. It was how she herself had sat through dinners.
 
 She slowed her breathing, in through the nose, the way you do when you want to be taken for asleep. After a while the pages stopped.
 
@@ -112,7 +112,7 @@ She closed her eyes. She slept with the lamp on. It was easier than she had expe
 
 * * *
 
-She woke at six, as she did, before the others. The window was grey. One of Ruby's arms hung over the edge of the bunk above her, palm up. Across the room the lamp was off and the book lay shut on the shelf, and Blake was asleep, or a very good imitation of it, curled to the wall with her back to the room.
+She woke at six, as she did, before the others. The window was grey. One of Ruby's arms hung over the edge of the bunk above her, palm up. Across the room the lamp was off and the book lay shut on the shelf, and Blake was asleep, or a good imitation of it, curled to the wall with her back to the room.
 
 Weiss crossed to the door. The sheet was where she had left it: eleven rules, a zero, a half. She took the pen from the desk and uncapped it, and under Rule 1, in the strip of margin she had left for nothing, she wrote:
 

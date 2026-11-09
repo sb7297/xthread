@@ -32,7 +32,7 @@ Yang came up the step and put both arms round her. The cold one went across her 
 
 "That would be very welcome."
 
-She heard it. She heard the word go out. It was the same word, and it went out into the air and was something different, a small clear plain thing, and Yang, who had a very good ear, grinned.
+She heard it. She heard the word go out. It was the same word, and it went out into the air and was something different, a small clear plain thing, and Yang, who had a good ear, grinned.
 
 "Rule zero," she said, and went.
 
@@ -264,7 +264,7 @@ She waited.
 
 "May I come over?" said Weiss.
 
-The yard was very quiet. A long way off on the hill something small went through the snow and stopped. The figure at the woodpile did not move at all, and she stood, and counted five, and then, because she was not finished, counted five again.
+The yard was quiet. A long way off on the hill something small went through the snow and stopped. The figure at the woodpile did not move at all, and she stood, and counted five, and then, because she was not finished, counted five again.
 
 "Yes," said Blake.
 

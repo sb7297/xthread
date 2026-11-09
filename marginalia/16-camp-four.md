@@ -28,7 +28,7 @@ And at the back, against the face of the hill, a square of darkness cut in the r
 
 She did not go near it.
 
-She stood on the track and looked at the camp for some time. She had been in quiet places. She had stood in the Emerald Forest at dawn, and in the Hall of Banners when it was empty, and once at the bottom of the east well at home, where the air was cold and the walls close. This was a different kind. It was the quiet of a place that had been left. It had a smell, even in that cold: a faint iron smell, and of old coal, and of the sweet thing that a house gives off when no one has lit a fire in it for a very long time.
+She stood on the track and looked at the camp for some time. She had been in quiet places. She had stood in the Emerald Forest at dawn, and in the Hall of Banners when it was empty, and once at the bottom of the east well at home, where the air was cold and the walls close. This was a different kind. It was the quiet of a place that had been left. It had a smell, even in that cold: a faint iron smell, and of old coal, and of the sweet thing that a house gives off when no one has lit a fire in it for a long time.
 
 The key was on a wire round her neck. The tag said *No. 4 — Insp.* in Klein's small copperplate.
 
@@ -92,13 +92,13 @@ That was the last. Under it the ruled lines went on, clean, down to the bottom o
 
 She read it twice. She read it a third time.
 
-She was aware of the stove ticking behind her. She was aware of a bird, somewhere, outside, making a small unmusical noise in the cold. She stood at the desk in the grey light with the book in both hands, and she noticed that she was holding it very carefully, the way one holds something that is still warm.
+She was aware of the stove ticking behind her. She was aware of a bird, somewhere, outside, making a small unmusical noise in the cold. She stood at the desk in the grey light with the book in both hands, and she noticed that she was holding it carefully, the way one holds something that is still warm.
 
 Mr. H. She knew him. *Harrow, T., Foreman.* She had copied it herself in the best of her hands.
 
 *Again.*
 
-There was no one to tell. There was a report in a black leather binder, with a table on page nineteen, and a determination that the engineers had found no negligence. It was dated nine days after the fortieth. She thought, with great calm, that it was a very good document. It was laid out in columns.
+There was no one to tell. There was a report in a black leather binder, with a table on page nineteen, and a determination that the engineers had found no negligence. It was dated nine days after the fortieth. She thought, with great calm, that it was a good document. It was laid out in columns.
 
 She sat down in the chair with one arm. She untied the string, and drew the pencil to her, and turned to the first blank line.
 

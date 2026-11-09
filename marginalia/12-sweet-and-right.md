@@ -63,7 +63,7 @@ Winter set it down. She set it down precisely where it had been, with the thumb 
 
 * * *
 
-The Hall of Banners was long and grey and very cold. Someone had hung the flags of the four kingdoms in a row along the north wall, and under them, on easels, there were photographs. They had been blown up large and mounted on board. Weiss counted forty-one. Under each was a name, set in capitals, with two dates.
+The Hall of Banners was long and grey and cold. Someone had hung the flags of the four kingdoms in a row along the north wall, and under them, on easels, there were photographs. They had been blown up large and mounted on board. Weiss counted forty-one. Under each was a name, set in capitals, with two dates.
 
 She knew nine of the faces.
 
@@ -89,7 +89,7 @@ He spoke for twenty-five minutes. He was good. He had a voice like a warm hand o
 
 The room made a sound. It was a long exhalation, as of people being told what they had hoped to be told.
 
-By the door the child with the flag had begun, very slightly, to tremble.
+By the door the child with the flag had begun, slightly, to tremble.
 
 * * *
 
@@ -117,7 +117,7 @@ She could see the woman in the third row. She was looking down now. Her lips wer
 
 *—for the land that was kept, and the hearth that was held—*
 
-She was thinking, with great clarity, that Pyrrha had once picked up her pencil case. It had been in the corridor outside Port's room, in the second week. It had spilled. Pyrrha had gone down on one knee and collected all of it, the pens, the ruler, the little silver compass, and had handed it back, and said nothing about the fact that she was Pyrrha Nikos. It had taken eleven seconds. Weiss had said "Thank you." She had thought, at the time, that it was a very small thing.
+She was thinking, with great clarity, that Pyrrha had once picked up her pencil case. It had been in the corridor outside Port's room, in the second week. It had spilled. Pyrrha had gone down on one knee and collected all of it, the pens, the ruler, the little silver compass, and had handed it back, and said nothing about the fact that she was Pyrrha Nikos. It had taken eleven seconds. Weiss had said "Thank you." She had thought, at the time, that it was a small thing.
 
 *—and the sons and the daughters who fell where they stood—*
 

@@ -32,7 +32,7 @@ She was off the seat. She was crossing the snow. She did not run; she walked, qu
 
 And then Yang's arms were round her.
 
-She had not been ready. She stood rigid in it. One arm was warm, a living weight across her back; the other was cold, so cold that she could feel it through the grey coat and the shirt under it, a long hard bar of metal laid down the spine, fitted, precise, unbending. She smelled engine oil and woodsmoke and, under it, very faintly, something like honey.
+She had not been ready. She stood rigid in it. One arm was warm, a living weight across her back; the other was cold, so cold that she could feel it through the grey coat and the shirt under it, a long hard bar of metal laid down the spine, fitted, precise, unbending. She smelled engine oil and woodsmoke and, under it, faintly, something like honey.
 
 Her hands came up. She did not decide it. They went round the sheepskin, and held.
 
@@ -42,7 +42,7 @@ Her hands came up. She did not decide it. They went round the sheepskin, and hel
 
 "Don't *try.*"
 
-There was a long pause. Over Yang's shoulder the sky was an even white. She could see the stump of the dead tram. She could see, on the step of the hut, a figure that had come out and stood quite still with a hand on the frame.
+There was a long pause. Over Yang's shoulder the sky was an even white. She could see the stump of the dead tram. She could see, on the step of the hut, a figure that had come out and stood still with a hand on the frame.
 
 "Okay," said Blake.
 
@@ -108,7 +108,7 @@ There were six. They were large and rough-skinned and absurdly orange, the colou
 
 Nobody said anything.
 
-Weiss was looking at the oranges with an expression Blake could not read. She was standing quite still by the stove with the coffee in her arms.
+Weiss was looking at the oranges with an expression Blake could not read. She was standing still by the stove with the coffee in her arms.
 
 Yang gave one to each of them, and kept one. She sat on the corner of the desk and began tearing the rind off hers in great ragged strips, with her thumb, and flicking them into the stove. Blake held hers. She turned it over. After a moment she dug her thumbnail in at the top and began, carefully, round and round, to peel.
 
@@ -140,7 +140,7 @@ Blake opened her mouth.
 
 "She's tired," said Weiss. "She's been sleeping badly. I've been taking the night stove."
 
-There was a very small pause.
+There was a small pause.
 
 Yang's eyes moved to Weiss. They moved back. She put her fork down on the plate, quietly.
 

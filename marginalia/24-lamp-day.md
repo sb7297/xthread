@@ -58,7 +58,7 @@ She had thought that she knew every way a person could be kind. She had learned 
 
 "I know what you meant." Blake did not raise her voice. Her ears were forward; her eyes, in the lamp, were level, and gold, and entirely steady. "I'm coming."
 
-There was a very short silence.
+There was a short silence.
 
 "Okay," said Weiss.
 
@@ -116,7 +116,7 @@ She walked past the hut without turning.
 
 They went by in single file. Weiss stood on the step with a lamp in her hand, which Tove had given her, and watched them pass. A woman looked at her. A boy looked at her. The old man with the stick turned his head slowly as he went by and gave her a long, level, appraising look, as one gives a tradesman.
 
-Blake said, very low: "Now."
+Blake said, low: "Now."
 
 They went down the step and fell in at the end.
 
@@ -142,7 +142,7 @@ It was low. It was ragged. It was eleven people in the cold, saying it at differ
 
 "Come up."
 
-She stood at the back with her lamp at her feet, and the dog against her boot, and heard it go. She did not know where to look. She looked at the stone. It went on: *Pettigrew Oakes. Emil Voss. Corin Hale.* The syllables fell one at a time into the dark, and were answered, each, with the same two words. There was a rhythm to it. It was the rhythm of something done a very long time; it went down through the soles of her feet. *Ilse Brandt. Joss Tenney. Linus Pell.*
+She stood at the back with her lamp at her feet, and the dog against her boot, and heard it go. She did not know where to look. She looked at the stone. It went on: *Pettigrew Oakes. Emil Voss. Corin Hale.* The syllables fell one at a time into the dark, and were answered, each, with the same two words. There was a rhythm to it. It was the rhythm of something done a long time; it went down through the soles of her feet. *Ilse Brandt. Joss Tenney. Linus Pell.*
 
 By the tenth she had her lips moving.
 
@@ -176,7 +176,7 @@ It went on. It took nineteen minutes by the watch she did not look at. The last 
 
 "Come up," said the yard.
 
-Tove folded the paper. She put it in her coat. She stood for a time with her back to them, quite still, and her ears were down, flat to her head, and the light of thirty-one lamps shook on the white fur.
+Tove folded the paper. She put it in her coat. She stood for a time with her back to them, still, and her ears were down, flat to her head, and the light of thirty-one lamps shook on the white fur.
 
 * * *
 
@@ -298,7 +298,7 @@ She had not known that Blake would. She did not know the words. She was humming 
 
 In the second row the old woman with the walking frame had looked round.
 
-She was very old, and very small, and her ears were nearly bald with age. She looked at Weiss steadily out of two filmed eyes. Then she nodded. She did it once, with her chin, slowly, as at a child who has finally put its foot down on the right stair.
+She was old, and small, and her ears were nearly bald with age. She looked at Weiss steadily out of two filmed eyes. Then she nodded. She did it once, with her chin, slowly, as at a child who has finally put its foot down on the right stair.
 
 * * *
 

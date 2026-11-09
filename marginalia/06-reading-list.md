@@ -154,7 +154,7 @@ Blake closed the book. She did it slowly. It took, Weiss thought, the longest ti
 
 "It's how you measure a thing."
 
-There was a very small silence. Weiss, who had not been sure she could, said: "You said, *it's how you tape a wrist.*"
+There was a small silence. Weiss, who had not been sure she could, said: "You said, *it's how you tape a wrist.*"
 
 "I did."
 

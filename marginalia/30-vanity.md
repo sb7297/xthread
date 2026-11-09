@@ -52,7 +52,7 @@ She looked at the mirror again.
 
 Blake looked at the scissors.
 
-She was standing in the middle of the floor with her hands at her sides and her ears slightly back, and what was in her face was not reluctance. It was a very careful inspection, of the kind one gives a floor before stepping on it.
+She was standing in the middle of the floor with her hands at her sides and her ears slightly back, and what was in her face was not reluctance. It was a careful inspection, of the kind one gives a floor before stepping on it.
 
 "Behind you."
 
@@ -138,7 +138,7 @@ It was so level a question that for a moment she did not hear that it was one. S
 
 "I'm cutting your hair."
 
-It was so extremely dry that she nearly laughed, and had to hold her head very still, with her chin up and her lips pressed together; and in the glass Blake's mouth did the thing at the corner, once, and went back.
+It was so extremely dry that she nearly laughed, and had to hold her head still, with her chin up and her lips pressed together; and in the glass Blake's mouth did the thing at the corner, once, and went back.
 
 "Hum," she said.
 
@@ -150,7 +150,7 @@ The scissors went in time. She had not known that they would. It was a slow soft
 
 It stopped a little above her shoulders.
 
-It was blunt, and very straight, and slightly uneven on the left. She turned her head. It swung. It was extraordinarily light; the back of her neck was bare to the stove, and cold, and she put her hand to it, and found a stranger there.
+It was blunt, and straight, and slightly uneven on the left. She turned her head. It swung. It was extraordinarily light; the back of her neck was bare to the stove, and cold, and she put her hand to it, and found a stranger there.
 
 "It's crooked," said Blake.
 
@@ -204,19 +204,19 @@ She stood in the light with the scissors in her fist. Her ears went back and cam
 
 It was a different thing.
 
-She had known it would be. She had not known how. She stood in front of the stool with the comb in one hand and the scissors in the other, in the thin cold light from the window, and Blake sat below her, with her face turned up and her back to the glass, so that every move Weiss made was in front of her eyes. She kept very still. She kept her hands in her lap. She watched Weiss's hands as one watches a bird.
+She had known it would be. She had not known how. She stood in front of the stool with the comb in one hand and the scissors in the other, in the thin cold light from the window, and Blake sat below her, with her face turned up and her back to the glass, so that every move Weiss made was in front of her eyes. She kept still. She kept her hands in her lap. She watched Weiss's hands as one watches a bird.
 
 The hair was fine. It was heavier than she had expected, and cool, and it had a faint sheen, an oil-colour, like ink before it dries. She lifted a lock at the side. She combed it down. It fell between her fingers in a silent rope.
 
 The scissors made their small sound.
 
-She took the length from the fringe first. It fell on Blake's lids and she shut them, and a hair lay across the lashes of one eye, and Weiss said, "May I?" and Blake said, "Yes," and she put her thumb to it and brushed it away. It was warm. The skin of the eyelid was very thin, and it moved under her thumb, once.
+She took the length from the fringe first. It fell on Blake's lids and she shut them, and a hair lay across the lashes of one eye, and Weiss said, "May I?" and Blake said, "Yes," and she put her thumb to it and brushed it away. It was warm. The skin of the eyelid was thin, and it moved under her thumb, once.
 
 She went round the side.
 
 "May I move this?"
 
-She had her hand near the left ear. She did not touch it. She held her fingers in the air at a half-inch's distance from the rim, quite steady, a little cold.
+She had her hand near the left ear. She did not touch it. She held her fingers in the air at a half-inch's distance from the rim, steady, a little cold.
 
 Blake's eyes opened.
 
@@ -302,7 +302,7 @@ She stood with the broom half lifted. Blake was looking at the floor. Her face w
 
 It stood there all afternoon. The dog came and sniffed at it. He walked a slow circle round the edge, with his head down, and then, with the air of a creature that has made a considered judgment, he went into the middle and lay down in it, in the black and white, and turned round once, and put his nose on his paws.
 
-The light went along the floor. It was a clear day, perfectly still. In the office the stove ticked, and over it, in the cold, a thread of steam went up from the kettle and hung and thinned; and it came to her that every single part of this was going to end. The hair would be swept. The kettle would be dry. The light on the boards would go along and be gone before the hour. The two of them, in this room, with the dog, with these hands. She stood with the broom, quite still, and saw the whole of it laid out in the sun, like a coat on a bed, and felt neither grief nor its opposite; only a great, still, rather startled attention.
+The light went along the floor. It was a clear day, perfectly still. In the office the stove ticked, and over it, in the cold, a thread of steam went up from the kettle and hung and thinned; and it came to her that every single part of this was going to end. The hair would be swept. The kettle would be dry. The light on the boards would go along and be gone before the hour. The two of them, in this room, with the dog, with these hands. She stood with the broom, still, and saw the whole of it laid out in the sun, like a coat on a bed, and felt neither grief nor its opposite; only a great, still, rather startled attention.
 
 *Breath,* she thought. It was what the old word meant, she had been told. The Preacher's. *Vanity.* It had meant a breath, a puff of steam on a cold morning. It had never meant that nothing was worth anything. It had only meant: *look quickly.*
 

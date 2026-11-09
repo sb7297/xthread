@@ -12,7 +12,7 @@ In the library there was only the building. Pipes, the high note of the lights, 
 
 She wore her gloves. They were black wool, cut off at the first knuckle, and the stacks were cold. She wore the bow, too. After an hour the bow began to ache at the hinge of each ear, a dull pinch that moved up toward the temple, and she would press her thumbs there through the ribbon and wait for it to pass. It did not pass. It only got used to being ignored.
 
-Around midnight on the third night, when the woman with the cart had gone through to the far wing, Blake took her book into the last stack, where the shelves ran out against the wall and the poetry was, and loosened the knot and let them stand. Twenty minutes. Back against the shelf. The air was very cold on them and it was very good.
+Around midnight on the third night, when the woman with the cart had gone through to the far wing, Blake took her book into the last stack, where the shelves ran out against the wall and the poetry was, and loosened the knot and let them stand. Twenty minutes. Back against the shelf. The air was cold on them and it was good.
 
 She heard the door before she heard the feet. She had the bow tied before the feet were halfway down the aisle.
 

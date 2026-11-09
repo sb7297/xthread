@@ -88,7 +88,7 @@ She stood with her hand on the envelope. It was warm from being close to him. Th
 
 She wrote the note at the dining-room table in the dark.
 
-She had her own pen. She could do it by touch. The room was very cold and she did not light a lamp. The table went away from her on both sides in a long pale gleam, and at the far end, where the bare place was, the cloth lay smooth and white and unmarked, and the plate in the dark was a round of faint light.
+She had her own pen. She could do it by touch. The room was cold and she did not light a lamp. The table went away from her on both sides in a long pale gleam, and at the far end, where the bare place was, the cloth lay smooth and white and unmarked, and the plate in the dark was a round of faint light.
 
 *I am going. I will not say where. I will write when I can. —W.*
 

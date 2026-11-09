@@ -36,7 +36,7 @@ Under it, in a lighter hand, held steeper:
 
 She read it twice. She turned the page.
 
-She knew the book. She knew where every one of her own notes was, and what the weather had been when she made it: a margin at page 9, a line at page 31, the long run at page 103 that she had written on the night after an examination, lying on her stomach with the lamp on her back. They were all there, small, neat, upright, a little dry. She had been, she thought, a very plain person. She had thought she was being private.
+She knew the book. She knew where every one of her own notes was, and what the weather had been when she made it: a margin at page 9, a line at page 31, the long run at page 103 that she had written on the night after an examination, lying on her stomach with the lamp on her back. They were all there, small, neat, upright, a little dry. She had been, she thought, a plain person. She had thought she was being private.
 
 The other hand began at page 14.
 
@@ -52,7 +52,7 @@ There was a word beside it now.
 
 *Whoever reads it.*
 
-She sat very still.
+She sat still.
 
 She looked at the old stroke, and she looked at the new. She had thought, for all that time, that the hook was nothing. It was the stroke of a pencil that had not finished. She saw now where it would have gone. It was the first line of a *W.* Weiss had stopped, in a dormitory, in a lamp's light, on a night Blake could now place, and put the pencil down.
 
@@ -90,7 +90,7 @@ She breathed.
 
 *Wrote to my sister. Did not post it. The post comes once a month and I find I prefer the letters I have not sent; they are so much better than the ones that arrive.*
 
-*I have four. They are very good. They are all very good. —Atlas.*
+*I have four. They are good. They are all good. —Atlas.*
 
 *Day 31: five.*
 
@@ -120,7 +120,7 @@ And, lower, a fortnight on, different pencil, in a different pressure:
 
 She did not go on for some time.
 
-She got up. She went to the door and opened it and stood in the cold, on the step, in her shirtsleeves, with the book held against her side. It was very clear. The stars were out over the roofs, hard, close, millions of them, and under them the camp lay in its blue snow with one light in it, small and yellow, at the window of the hut across the yard.
+She got up. She went to the door and opened it and stood in the cold, on the step, in her shirtsleeves, with the book held against her side. It was clear. The stars were out over the roofs, hard, close, millions of them, and under them the camp lay in its blue snow with one light in it, small and yellow, at the window of the hut across the yard.
 
 She stood there for ten minutes. Then she came in and shut the door and sat down and began again at page 100.
 

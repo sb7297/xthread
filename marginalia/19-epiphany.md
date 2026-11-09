@@ -2,7 +2,7 @@
 
 The dog had stood at the door since noon.
 
-He had not barked. He stood with his nose to the crack at the bottom, rigid, with the one ear up and the other down and his tail held low and moving, very slowly, from side to side, like a man testing a floor. When she spoke to him he did not turn. When she set a bowl beside him he looked at it as at a thing from another life.
+He had not barked. He stood with his nose to the crack at the bottom, rigid, with the one ear up and the other down and his tail held low and moving, slowly, from side to side, like a man testing a floor. When she spoke to him he did not turn. When she set a bowl beside him he looked at it as at a thing from another life.
 
 "It's only the wind," said Weiss.
 
@@ -86,7 +86,7 @@ Then something went across the face, quickly, so quickly that she could not have
 
 Weiss stepped back.
 
-She stood against the wall with the rapier in her hand. The other came in past her, stooping under the lintel, and the cold came with it, a clean hard radiance that smelled of ice and wool and smoke and something else, faint and sweet and unplaceable, like an orange peel in a coat. Snow slid from the shoulders onto the boards. It was very tall. It was not tall at all. It stood in the middle of the floor, in the lamplight, with the scarf half off, and breathed.
+She stood against the wall with the rapier in her hand. The other came in past her, stooping under the lintel, and the cold came with it, a clean hard radiance that smelled of ice and wool and smoke and something else, faint and sweet and unplaceable, like an orange peel in a coat. Snow slid from the shoulders onto the boards. It was tall. It was not tall at all. It stood in the middle of the floor, in the lamplight, with the scarf half off, and breathed.
 
 The dog came in last. He went round the legs twice, in a tight circle, and sat down on the boots.
 

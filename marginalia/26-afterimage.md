@@ -10,7 +10,7 @@ The office was dark but for the stove. Yang lay on the floor beside it in a nest
 
 Weiss stopped.
 
-She stood with her hand on the door frame. The shape in front of her was very still. The coat hung from the shoulders in its long familiar folds. The hair was black, cut square at the nape; the ears were up, bare, two dark upright shapes against the glow of the grille.
+She stood with her hand on the door frame. The shape in front of her was still. The coat hung from the shoulders in its long familiar folds. The hair was black, cut square at the nape; the ears were up, bare, two dark upright shapes against the glow of the grille.
 
 She had not thought that Blake would be here.
 
@@ -94,7 +94,7 @@ On the other side of the room the door of the hut stood a hand's width open, and
 
 "What?" said Yang.
 
-She had come up out of the blankets with the sheepskin round her shoulders and her hair in a bird's nest. She stared at the kettle. She stared at Weiss, standing very straight in the middle of the floor with an arm out, and at the open door, and at the white light in it, and her face went through three expressions in a second and a half.
+She had come up out of the blankets with the sheepskin round her shoulders and her hair in a bird's nest. She stared at the kettle. She stared at Weiss, standing straight in the middle of the floor with an arm out, and at the open door, and at the white light in it, and her face went through three expressions in a second and a half.
 
 "She—"
 

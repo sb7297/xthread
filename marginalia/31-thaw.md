@@ -14,7 +14,7 @@ She did not move. She stood with her eyes shut and her face tipped to the sky an
 
 Blake took the nails out of her mouth.
 
-She had read the page. She knew what was written beside it, in the margin of the book, in a steep light hand. *Thaw. The first drip from the eaves at noon. I stood under it with my face turned up like a fool.* And under that, two words: *Not yet.*
+She had read the page. She knew what was printed on it, in Ingram's plain type: *Thaw. The first drip from the eaves at noon. I stood under it with my face turned up like a fool.* And beside it, in a steep light hand, two words: *Not yet.*
 
 She put the hammer down on the ridge, carefully, so as not to drop it on anyone.
 
@@ -26,7 +26,7 @@ She did not say it. She sat astride the roof with her hands on her knees and her
 
 By dark the whole camp was talking.
 
-It was water. It was running off every roof, from the long eaves of the bunkhouse and the sheds, from the dead tram, from the gutters of the mess hall, all in different notes. It dripped in the lean-to. It ran under the snow with a sound like a stream under a floor. Down on the river the ice made a long groaning crack, a sound like a door opened in a very large house, and a minute later another, farther off, and the dog got up and went to the window and stood with his nose to the glass.
+It was water. It was running off every roof, from the long eaves of the bunkhouse and the sheds, from the dead tram, from the gutters of the mess hall, all in different notes. It dripped in the lean-to. It ran under the snow with a sound like a stream under a floor. Down on the river the ice made a long groaning crack, a sound like a door opened in a large house, and a minute later another, farther off, and the dog got up and went to the window and stood with his nose to the glass.
 
 The hut leaked.
 
@@ -34,7 +34,7 @@ They had patched the north side and not the south. By eight there were four buck
 
 Blake lay on her pallet by the stove.
 
-She lay on her back with the blanket to her chin and listened. She had become, over the weeks, a connoisseur of it. There was the saucepan, which was high, and sharp, and in a hurry. There was the biggest bucket, in the corner, a deep slow note, once every eight or nine seconds, as of a very large animal drawing breath. She counted. She got to three hundred and eleven.
+She lay on her back with the blanket to her chin and listened. She had become, over the weeks, a connoisseur of it. There was the saucepan, which was high, and sharp, and in a hurry. There was the biggest bucket, in the corner, a deep slow note, once every eight or nine seconds, as of a large animal drawing breath. She counted. She got to three hundred and eleven.
 
 The door of the second room was ajar.
 
@@ -84,7 +84,7 @@ The dog's tail moved on the boards.
 
 * * *
 
-The room was very small.
+The room was small.
 
 It had a cot and a washstand and a shelf, and a window with no curtain, and through the window the thaw-sky, which had cleared; it was spread with a thousand stars and a late thin moon. The light lay in a long grey bar across the blanket. Weiss was sitting up against the wall with her knees under the quilt and the dog across her feet, in a man's flannel shirt that came to her thighs, with her cropped hair standing out on one side like a feather. She looked, in the dark, extremely young.
 
@@ -104,7 +104,7 @@ She came round the side of the cot. She stopped where the bar of moonlight began
 
 Weiss was looking at her.
 
-She was looking with her whole attention, in the way she had; with her chin a little lifted, and her lips closed, and her eyes very wide and bright and quite still. She had the look of a person standing at a gate. The scar was a pale line over the left. It made the eye look half-lidded, and not at all: it made it look like it was listening.
+She was looking with her whole attention, in the way she had; with her chin a little lifted, and her lips closed, and her eyes wide and bright and still. She had the look of a person standing at a gate. The scar was a pale line over the left. It made the eye look half-lidded, and not at all: it made it look like it was listening.
 
 "May I kiss you?" said Blake.
 
@@ -158,7 +158,7 @@ She did it slowly, in front of her, in the grey light. She held it up where it c
 
 Weiss did not move.
 
-Her eyes had closed. Her face tipped, a degree, into the hand. Then, quite slowly, with the air of a person lowering something very heavy onto a table, she set her own palm over the back of Blake's, and drew it in, the last half inch, against her cheek.
+Her eyes had closed. Her face tipped, a degree, into the hand. Then, slowly, with the air of a person lowering something heavy onto a table, she set her own palm over the back of Blake's, and drew it in, the last half inch, against her cheek.
 
 It was warm. It was warmer than the quilt. The skin was dry and very smooth, and it fit.
 
@@ -168,7 +168,7 @@ She had thought it would be a decision. It was nothing like. It was the closing 
 
 Weiss's mouth was cold.
 
-It was dry, and cold, and for a second it did not move. Then it did. It opened, very slightly, on a breath, and was warm; and a hand came up and rested against her jaw, not holding, only touching, with the thumb under the ear, so lightly that she felt the pulse in it. It lasted perhaps three seconds.
+It was dry, and cold, and for a second it did not move. Then it did. It opened, slightly, on a breath, and was warm; and a hand came up and rested against her jaw, not holding, only touching, with the thumb under the ear, so lightly that she felt the pulse in it. It lasted perhaps three seconds.
 
 She drew back.
 
@@ -290,7 +290,7 @@ She turned, and put the boots down, and crossed to the cot, and knelt beside it.
 
 "Weiss."
 
-The eyes opened. They were very blue. For a second they were quite empty; and then they took her in, the face, the stance, the boots by the door, and something went across them, quick as a bird, and was gone.
+The eyes opened. They were very blue. For a second they were empty; and then they took her in, the face, the stance, the boots by the door, and something went across them, quick as a bird, and was gone.
 
 "Yes," said Weiss.
 

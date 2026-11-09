@@ -382,7 +382,7 @@
 
 — I know.
 
-*The stove ticks. Outside, very far off, on the hill, something small goes through the snow and stops.*
+*The stove ticks. Outside, far off, on the hill, something small goes through the snow and stops.*
 
 — Weiss.
 
