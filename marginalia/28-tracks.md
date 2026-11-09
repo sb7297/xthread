@@ -32,7 +32,7 @@ She ate. It was soup. It had barley in it.
 
 "Thank you," she said.
 
-Tove said nothing. She went about her work, which seemed to be the mending of a harness, at the table, with an awl and a length of waxed thread. She did not ask a question. She did not look round. The dogs outside scuffled and settled. Blake sat in front of the stove in the warm and ate the soup, and then the loaf, and then another bowl, and said *thank you,* twice more, in a voice that seemed to belong to a person on the other side of a pane of glass.
+Tove said nothing. She went about her work, which was the mending of a harness, at the table, with an awl and a length of waxed thread. She did not ask a question. She did not look round. The dogs outside scuffled and settled. Blake sat in front of the stove in the warm and ate the soup, and then the loaf, and then another bowl, and said *thank you,* twice more, in a voice that belonged to a person on the other side of a pane of glass.
 
 She slept on the floor. She slept for twenty hours.
 

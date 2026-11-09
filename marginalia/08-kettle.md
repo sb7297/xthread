@@ -208,7 +208,7 @@ She stamped again. Nothing. She took three steps, and the third time she brought
 
 "It is not *snow.* This is — it's rain that has lost its nerve."
 
-Blake didn't say anything. She couldn't, because Weiss had turned round with her hair coming down on one side and snow on her eyelashes and a look of such offended dignity that nothing she could have said would have been equal to it. And then, in front of her, quite suddenly, Weiss laughed.
+Blake didn't say anything. She couldn't, because Weiss had turned round with her hair coming down on one side and snow on her eyelashes and a look of such offended dignity that nothing she could have said would have been equal to it. And then, in front of her, all at once, Weiss laughed.
 
 It was not the laugh she used at dinner. That one was low and musical and went a short way and stopped. This one came out of her nose. It was a snort, short, surprised, and ugly, and she clapped a hand over her mouth, and her eyes above the hand went very wide.
 

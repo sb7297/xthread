@@ -88,7 +88,7 @@ They moved. It was badly done. Blake went forward when she should have gone back
 
 They went round. The wind took the end of Weiss's hair and put it across her face, and she did not move to put it back. She counted. She counted aloud for a time, and then more quietly, and somewhere in the third pass she stopped, and neither of them said anything about it.
 
-It came together quite suddenly, as it does. A wrong foot became a right foot. The box turned into a turn. And with a small shock, like a stair that is not there, Weiss found that she was no longer leading. She was being led, very slightly, by a quiet hand on her back, and she was following, and it was easy.
+It came together all at once, as it does. A wrong foot became a right foot. The box turned into a turn. And with a small shock, like a stair that is not there, Weiss found that she was no longer leading. She was being led, very slightly, by a quiet hand on her back, and she was following, and it was easy.
 
 Blake's ears were forward. Both of them. They were pointed at her face, as at a sound, and the tips were just visible against the dark. They did not move.
 

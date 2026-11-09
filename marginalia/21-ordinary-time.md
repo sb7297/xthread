@@ -24,7 +24,7 @@ It was said quite mildly, from across the yard. Weiss lowered the axe. She stood
 
 "Right," she said. "I'll revise the schedule."
 
-She did it that night. She took a fresh sheet, ruled it, and wrote the names in two columns. Under *Blake,* in the first row, she wrote *Water,* and then looked at it, and then, because it seemed to need something, put in brackets: *(with W.)* It was better. She left the rest of the column blank, as an offer.
+She did it that night. She took a fresh sheet, ruled it, and wrote the names in two columns. Under *Blake,* in the first row, she wrote *Water,* and then looked at it, and then, because the square looked bare, put in brackets: *(with W.)* It was better. She left the rest of the column blank, as an offer.
 
 In the morning she found that it had been filled in. Not in her hand. In a small upright pencil, with no corrections, down the whole of the sheet, in a clear pleasant diagonal: *Water. Wood. Traps. Stove (night). Radio (alt.).* She read it twice. It was a good schedule. It was fairer than hers.
 
@@ -48,7 +48,7 @@ Weiss set her feet again. She raised the axe, brought it down, and it went into 
 
 Blake got up.
 
-She did not say anything else. She took the axe, which Weiss gave her, and stood the log on its end, and looked at it for about a second. Then she lifted the head and let it fall, without effort, from the shoulder, on a line that seemed to have been drawn there beforehand; and the two halves came apart with a sound like a book dropped on a table, and lay in the snow, white, wet, open to the heart.
+She did not say anything else. She took the axe, which Weiss gave her, and stood the log on its end, and looked at it for about a second. Then she lifted the head and let it fall, without effort, from the shoulder, on a line that might have been drawn there beforehand; and the two halves came apart with a sound like a book dropped on a table, and lay in the snow, white, wet, open to the heart.
 
 "Let the weight do it," she said.
 

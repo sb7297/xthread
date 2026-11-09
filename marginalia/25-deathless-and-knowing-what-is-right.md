@@ -94,7 +94,7 @@ Then Yang crossed the yard in four strides and put her arms round her, and Weiss
 
 "Thank you."
 
-"You both look terrible," said Yang, looking from one of them to the other. Her eyes had gone suddenly very sharp and went on being sharp for about a second. Then she let go, and clapped her hands together, and said, "Okay! I brought stuff."
+"You both look terrible," said Yang, looking from one of them to the other. Her eyes had gone very sharp and went on being sharp for about a second. Then she let go, and clapped her hands together, and said, "Okay! I brought stuff."
 
 * * *
 
@@ -130,7 +130,7 @@ The rind came away in one long curl, never breaking, and hung from her hand, and
 
 They ate at the table. It was fish, and potato, and a loaf Weiss had learned to make that was nearly bread. Yang ate three helpings, talking with her mouth full, and told them about Mistral: the checkpoints, the markets, the street where a man had tried to sell her a live goose. She told the story of a fight in a tavern. She did all the voices. At the part with the goose, Weiss's mouth did something, and Blake saw it and looked down.
 
-It was easier than she had thought. It was nearly easy. There was a third person at the table, and the third person was loud, and the air between the other two seemed to have been moved aside to make room.
+It was easier than she had thought. It was nearly easy. There was a third person at the table, and the third person was loud, and the air between the other two had been moved aside to make room.
 
 "So how are you?" said Yang.
 
