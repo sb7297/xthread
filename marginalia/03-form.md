@@ -98,7 +98,7 @@ Weiss looked away at the wall.
 
 She smoothed the last edge flat with her thumb. It took one second. Weiss became aware that she had been holding her own breath, and that she was a person who had just criticised another person for it.
 
-Blake stood and picked up her bag. At the door she stopped, and her free hand went to her coat pocket and then to the other, and then she looked at her bare right hand for some time, and put it away.
+Blake stood and picked up her bag. At the door she stopped, and her free hand went to her coat pocket and then to the other, and then she looked at her bare left hand for some time, and put it away.
 
 Weiss's own hand was in her coat. It was closed around something wool.
 
