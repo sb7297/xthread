@@ -8,6 +8,8 @@ Canon-adjacent AU. It follows the first year at Beacon, the Fall, the separation
 
 Thirty-three chapters. The prose is plain on purpose; most of what happens is in what is left out.
 
+Other editions, both generated from the chapter files: [index.html](index.html) is a single-page version set in the same typography as the site's front page (light and dark, readable on a phone); [marginalia-complete.md](marginalia-complete.md) is the whole text as one Markdown file.
+
 ---
 
 ## Contents

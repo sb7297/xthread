@@ -1322,7 +1322,7 @@ Weiss stood there in her nightdress with her hands flat against the pane.
 
 "Squeaks."
 
-"Under boots. When it's cold enough. Like — a sort of — " She made a noise, high and small, in her nose.
+"Under boots. When it's cold enough. Like — a sort of—" She made a noise, high and small, in her nose.
 
 "Show me."
 
