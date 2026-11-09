@@ -4755,6 +4755,10 @@ Yang drew back. She wiped her eyes with the heel of her good hand, once, hard, a
 
 "They're great. They've always been great." She sniffed. "I mean it. I should've said."
 
+"How did you find us?"
+
+"Your mom wrote to Sun. Sun wrote to me. Some butler wrote to Ruby, very formally, to say Weiss was alive and she wasn't to tell her father." Yang shrugged. "I can add."
+
 Blake looked at the left sleeve. It was empty to the elbow, and then it was not. The cuff had ridden back a little over a joint of brushed steel. She looked at it and could not look at anything else, and Yang saw her do it, and her face changed.
 
 "It's a good arm."
